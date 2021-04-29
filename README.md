@@ -1,1 +1,0 @@
-# szakalyzs.github.io
